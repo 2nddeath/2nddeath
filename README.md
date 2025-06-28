@@ -1,5 +1,3 @@
-
-
 ![tumblr_95ddbb01455c6b131f3f009761aa3115_31e930a8_100](https://github.com/user-attachments/assets/8f233a10-6527-47f0-81d9-c8e0bff14da6)
 ![tumblr_12da7add0f49f01e1844e5301c5f7357_38963e03_100](https://github.com/user-attachments/assets/c8a9f16e-c2bd-4d38-82d5-75500e72bcd4)
 ![tumblr_0c49b302d39392fd159184fc75abb75f_5829e678_100](https://github.com/user-attachments/assets/5c38ff74-9f9a-4a83-9baa-3ebf43fb2353)
@@ -47,6 +45,7 @@
 ![tumblr_ed367613f7ed530abb49a2bfa1f94f02_21cc4de3_100](https://github.com/user-attachments/assets/f0c0f127-e5aa-4cc2-a650-3955e04e2872)
 ![tumblr_c7eebf908990a6a95442ea2a26e2d70f_a2f3a1c5_100](https://github.com/user-attachments/assets/b59531f1-2689-45a6-a811-c2e2f3a82581)
 
+![Spotify recently played](https://spotify-recently-played-readme.vercel.app/api?user=w3wx96d6d8jmkjfxhd2yeavnv&count=1)
 
 
 
