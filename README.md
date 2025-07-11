@@ -39,7 +39,6 @@
 ![tumblr_11ffc1e1bc5c2d53995c5f951c9e6427_0800f9f9_100](https://github.com/user-attachments/assets/c7cc3e4a-14af-4edd-8f45-53e5bdf4a82f)
 ![tumblr_d9a0177c4bfc4c176cc359af021ff80e_3f1d173a_100](https://github.com/user-attachments/assets/6ec42fb6-c6e4-4623-9417-d3b78ed9eb19)
 ![tumblr_e78c5ce9d880cb13cd586ac74b7fbe1c_9cbdedaf_100](https://github.com/user-attachments/assets/4e50804e-a8e3-45d7-830e-36c0648381fe)
-![tumblr_c7eebf908990a6a95442ea2a26e2d70f_a2f3a1c5_100](https://github.com/user-attachments/assets/b59531f1-2689-45a6-a811-c2e2f3a82581)
 
 
 what im listening to rn 🤩
