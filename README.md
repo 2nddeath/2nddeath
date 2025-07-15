@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=2nddeath&color=grey&label=hi)
+
 ![tumblr_95ddbb01455c6b131f3f009761aa3115_31e930a8_100](https://github.com/user-attachments/assets/8f233a10-6527-47f0-81d9-c8e0bff14da6)
 ![tumblr_12da7add0f49f01e1844e5301c5f7357_38963e03_100](https://github.com/user-attachments/assets/c8a9f16e-c2bd-4d38-82d5-75500e72bcd4)
 ![tumblr_0c49b302d39392fd159184fc75abb75f_5829e678_100](https://github.com/user-attachments/assets/5c38ff74-9f9a-4a83-9baa-3ebf43fb2353)
