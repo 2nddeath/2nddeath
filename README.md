@@ -43,7 +43,7 @@
 ![tumblr_e78c5ce9d880cb13cd586ac74b7fbe1c_9cbdedaf_100](https://github.com/user-attachments/assets/4e50804e-a8e3-45d7-830e-36c0648381fe)
 
 
-what im listening to rn 🤩
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=w3wx96d6d8jmkjfxhd2yeavnv&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
